@@ -1,7 +1,1 @@
-You can contact to me through my [instagram]  (https://instagram.com/_____teja_communist________?utm_medium=copy_link)
-
-you can message me.
-
-
-
-i will respond.
+you can check out my github [TadiboyinaTeja](https://github.com/TadiboyinaTeja/markdown-portfolio/pull/3) and say hello on Twitter[TadiboyinaTeja](https://twitter.com/TadiboyinaTeja?t=EUdAOrBwR4ly0wjAawFk8A&s=09)
