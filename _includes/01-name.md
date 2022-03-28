@@ -1,1 +1,3 @@
-Replace this with your name, and include a header.
+# Tadiboyina Teja, B.Tech
+## I am from Andra Pradesh
+were r u from ?
